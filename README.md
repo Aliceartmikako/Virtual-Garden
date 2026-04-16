@@ -1,2 +1,2 @@
 # Virtual-Garden
-https://aliceartmikako.github.io/Virtual-Garden/
+https://Aliceartmikako.github.io/Virtual-Garden/
